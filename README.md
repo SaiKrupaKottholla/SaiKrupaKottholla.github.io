@@ -1,1 +1,0 @@
-# SaiKrupaKottholla.github.io
